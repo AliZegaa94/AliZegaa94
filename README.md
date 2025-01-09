@@ -4,7 +4,7 @@
 Estas navidades, la mayor parte del tiempo he estado trabajando. Hemos abierto algunos festivos y en ciertos días, incluso he tenido que doblar turno.
 
 **Resumen:**
-- **Festivos trabajados:** Domingo 22.
+- **Festivos trabajados:** Domingo 22, Martes 24 y Martes 31.
 - **Dobles turnos:** Lunes 23 y Lunes 30.
 
 ---
