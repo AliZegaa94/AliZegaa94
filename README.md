@@ -45,4 +45,4 @@ La verdad es lo que más he dejado de lado. Confiando en que recuperaría el hil
 ---
 
 **Conclusión:**
-Aunque han sido unas navidades ocupadas, he podido combinar trabajo, tiempo con amigos y momentos familiares. Un equilibrio imperfecto ya que los estudios se han quedado en segundo plano, pero valioso.
+Aunque han sido unas navidades ocupadas, he podido combinar trabajo, tiempo con amigos y momentos familiares. Un equilibrio imperfecto ya que los estudios se han quedado en segundo plano, pero estas fechas son para disfrutar.
